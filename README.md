@@ -1,1 +1,1 @@
-# fnfnksb.github.io
+# (☞ﾟヮﾟ)☞ fnfnksb.github.io ☜(ﾟヮﾟ☜)
